@@ -1,0 +1,1 @@
+# bindingresult-blog
